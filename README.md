@@ -19,12 +19,8 @@
 
 [点击注册申请 WildCard 开卡](https://bit.ly/bewildcard)
 
-![image](https://github.com/rogergreenwood99/ChatGPT/assets/169865439/4bae777e-98de-4eae-aaaa-c37077de0937)
 
-
-申请到卡之后会有现成的免税州地址。点击CVC码可以直接查看。
-
-![image](https://github.com/rogergreenwood99/ChatGPT/assets/169865439/309e0148-68f7-45da-9f98-a807e74202bc)
+![image](https://github.com/user-attachments/assets/99aa8b63-0308-4625-a58f-9542cdb58b22)
 
 
 ### 步骤三：点击升级Plus
