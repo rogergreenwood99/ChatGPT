@@ -1,4 +1,4 @@
-# 2024年最新ChatGPT开通教程：轻松搞定
+# 2025年最新ChatGPT开通教程：轻松搞定
 
 ## 前期准备
 
@@ -17,7 +17,7 @@
 
 申请一张不需要月费年费的虚拟卡。申请前请先查看卡的推荐使用场景，选择可以订阅的卡种类。开卡不需要KYC认证。
 
-[点击注册申请开卡](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
+[点击注册申请 WildCard 开卡](https://bit.ly/bewildcard)
 
 ![image](https://github.com/rogergreenwood99/ChatGPT/assets/169865439/4bae777e-98de-4eae-aaaa-c37077de0937)
 
